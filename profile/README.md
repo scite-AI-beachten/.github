@@ -1,12 +1,10 @@
 <h1>scite AI beachten (Test 2025) : Was ist bei der Nutzung von scite AI zu beachten?</h1>
 <p><strong>scite AI beachten </strong> | <time datetime="2025-04-10">April 10,2025</time></p>
-<img src="https://doctoraimd.com/wp-content/uploads/2024/02/Screen-Shot-2024-02-12-at-9.34.23-PM.png"
+
+<img src="https://i.ytimg.com/vi/E6hC6dfUzfA/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLBZXNjl0d-Ofp-8ZVoKh-go9GqWdA"
   alt="comparative with Scite ai "
   width="750"
   height="450"
-  alt="comparative with Scite AI"
-  width="750"
-  height="400"
 />
 
 <a target="_blank" href="https://scite.ai/?via=new">Click here to have free access !</a>
@@ -193,9 +191,6 @@ Nutzer sollten bedenken, dass scite AI keine endgültige Bewertung wissenschaftl
   alt="comparative with Scite ai "
   width="750"
   height="450"
-  alt="comparative with Scite AI"
-  width="750"
-  height="400"
 />
   
 <a target="_blank" href="https://scite.ai/?via=new">Click here to have free access !</a>
