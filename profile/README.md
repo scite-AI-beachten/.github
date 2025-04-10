@@ -190,7 +190,7 @@ Nutzer sollten bedenken, dass scite AI keine endgültige Bewertung wissenschaftl
 <img src="https://down-id.img.susercontent.com/file/id-11134207-7r990-lzn2wpw0p7mw96"
   alt="comparative with Scite ai "
   width="800"
-  height="450"
+  height="400"
 />
   
 <a target="_blank" href="https://scite.ai/?via=new">Click here to have free access !</a>
