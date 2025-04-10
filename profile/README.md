@@ -2,7 +2,7 @@
 <p><strong>scite AI Benutzer</strong> | <time datetime="2025-04-10">April 10,2025</time></p>
 
 <img src="https://i.ytimg.com/vi/E6hC6dfUzfA/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLBZXNjl0d-Ofp-8ZVoKh-go9GqWdA"
-  alt="comparative with Scite ai "
+  alt="So verwenden Sie Scite AI "
   width="750"
   height="450"
 />
