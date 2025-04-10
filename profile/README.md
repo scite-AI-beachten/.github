@@ -1,5 +1,5 @@
-<h1>scite AI beachten (Test 2025) : Was ist bei der Nutzung von scite AI zu beachten?</h1>
-<p><strong>scite AI beachten </strong> | <time datetime="2025-04-10">April 10,2025</time></p>
+<h1>Scite AI Erfahrungen (Test 2025) : Was ist bei der Nutzung von scite AI zu beachten?</h1>
+<p><strong>scite AI Benutzer</strong> | <time datetime="2025-04-10">April 10,2025</time></p>
 
 <img src="https://i.ytimg.com/vi/E6hC6dfUzfA/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLBZXNjl0d-Ofp-8ZVoKh-go9GqWdA"
   alt="comparative with Scite ai "
